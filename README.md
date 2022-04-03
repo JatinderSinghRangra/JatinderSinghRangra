@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JatinderSinghRangra
+- 👋 Hi, I’m Jatinder Singh Rangra
 
 - 📫 How to reach me jatindersinghrangra@gmail.com ...
 - Facebook - https://www.facebook.com/JatinderSinghRangra/
